@@ -21,8 +21,4 @@ intersted in Engineering, specifically Electrical and Mechanical. At Appalachian
 are Electrical Engineering related.
 
 ## How to reach me: ☎️
-### Email: 
-- Personal: ianjorrell12@gmail.com
-- School: orrellij@appstate.edu
-### Phone:
-(704) 340-2887
+
